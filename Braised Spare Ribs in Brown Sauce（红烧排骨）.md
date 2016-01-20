@@ -18,8 +18,8 @@
 * 1/2 cup 黄椒或青椒，切条
  
 
-*Seasonings and Sauces:
- 调料：
+* Seasonings and Sauces:
+  调料：
  
 1、2 Tbsp. Chinese cooking wine
 2 tbsp 老酒
