@@ -12,23 +12,23 @@
 ## direction
    做法
    
-1. fresh and chopped pork-chop
+1、 fresh and chopped pork-chop
 排骨切断
 
-2. clean in tap-water
+2、 clean in tap-water
 用清水将排骨洗净
 
-3.deep-fry for a few minutes
+3、deep-fry for a few minutes
 用油炸一会儿
 
-4. get out the pork chop after they turn brown in oil
+4、 get out the pork chop after they turn brown in oil
 排骨炸至棕色将排骨捞出来
 
-5.stir the pork-chop with other spices
+5、stir the pork-chop with other spices
 与其它调味料一起翻炒
 
-6. put salt, sugar,vinegar....and stir
+6、 put salt, sugar,vinegar....and stir
 放盐，糖，醋，然后继续翻炒
 
-7. stir until being dry
+7、 stir until being dry
 收汁儿
