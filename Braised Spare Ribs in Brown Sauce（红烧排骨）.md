@@ -9,44 +9,44 @@
   原料：
 
 * 1 + 3/4 cup（300g）pork spare ribs，cut to small pieces (2 inches)
-* 1 + 3/4 cup（300g）排骨，切小块
+  1 + 3/4 cup（300g）排骨，切小块
 * 1/3 cup （about 8）small baby carrots
-* 1/3 cup （约8个）小胡萝卜
+  1/3 cup （约8个）小胡萝卜
 * 2/3 cup yellow onions，shredded
-* 2/3 cup 洋葱，切细条或切丁
+  2/3 cup 洋葱，切细条或切丁
 * 1/2 cup yellow or green peppers，cut to strips
-* 1/2 cup 黄椒或青椒，切条
+  1/2 cup 黄椒或青椒，切条
  
 
 * Seasonings and Sauces:
   调料：
  
 1、2 Tbsp. Chinese cooking wine
-2 tbsp 老酒
+   2 tbsp 老酒
 
 2、 2 tsp. Chinese vinegar
-2 tsp 香醋
+    2 tsp 香醋
 
 3、 1 piece ginger
-1片姜
+    1片姜
 
 4、 1 clove garlic，crushed
-1个蒜瓣泥
+    1个蒜瓣泥
 
 5、 3-4 pieces dry orange peel
-3-4片干陈皮
+    3-4片干陈皮
 
 6、 6-8 pieces Szechwan peppercorn
-几个花椒
+    几个花椒
 
 7、 2 pieces anise
-2个八角
+    2个八角
 
 8、 2 tbsp. water
-2 tbsp 水
+    2 tbsp 水
 
 9、 3 tbsp. light soy sauce
-3 tbsp 生抽
+    3 tbsp 生抽
 
 * 1 tbsp. starch
 1 tbsp嫩肉淀粉或地瓜粉
